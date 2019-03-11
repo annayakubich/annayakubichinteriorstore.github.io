@@ -1,1 +1,0 @@
-# annayakubichinteriorstore.github.io
